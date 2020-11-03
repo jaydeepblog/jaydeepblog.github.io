@@ -4,12 +4,6 @@ title: About
 permalink: /about/
 ---
 
-Some information about you!
+Jaydeep has just started this new blog so he didn't decide what to write here! Maybe tomorrow you'll be able to read about him.
 
-### More Information
-
-A place to include any other types of information that you'd like to include about yourself.
-
-### Contact me
-
-[email@domain.com](mailto:email@domain.com)
+[jaydeep.jadhav19@vit.edu](jaydeep.jadhav19@vit.edu)
