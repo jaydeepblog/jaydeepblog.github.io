@@ -14,5 +14,6 @@ I know that I’m really talking open-minded but this is the real me who spends 
 
 My Atya is coming tomorrow so it’s gonna be a lot of fun from tomorrow and I’m ready for it. I’m not gonna long posts now but I will for sure. Thanks.
 
-Listening album: [Working Men's Club]<https://open.spotify.com/album/4Uzll2pB5SnmC0rulgDHyB>
+Listening album: [Working Men's Club](https://open.spotify.com/album/4Uzll2pB5SnmC0rulgDHyB)
+
 Shows watching: The Mandalorian, Young Sheldon etc.
